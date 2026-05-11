@@ -1,4 +1,4 @@
-
+Experience dandy's world like never before with dandy's world Script premium, the #1 Script. Includes auto-upgrade and custom skins for unbeatable
 
 
 
